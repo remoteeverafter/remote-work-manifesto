@@ -16,7 +16,7 @@ Equal rights for benefits
   - healthcare and wellness plans 
 
 Equal rights for work inventory 
-  - 
+  - to be continued 
 
 
 
